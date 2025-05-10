@@ -7,6 +7,64 @@
 <p class="" data-start="857" data-end="1097">If you’ve ever felt frustrated trying to piece together a course business with complicated tools, confusing tech, and overpriced freelancers, I feel your pain.<br data-start="1016" data-end="1019" />That was me—until I clicked on a CourseMateAI 2.0 ad out of sheer desperation.</p>
 <p class="" data-start="1099" data-end="1205">I figured, what do I have to lose? Turns out, it was the best decision I’ve made for my business in years.</p>
 
+# 🎓 Coursemate AI 2.0 – Full Funnel Access + VIP Bonuses!
+
+## 🚀 Get All Coursemate AI 2.0 Offers Below
+
+You can grab any OTO directly — affiliate tracking is built into every link.
+
+---
+
+### 🔹 Coursemate AI 2.0 FE – Coupon Code: **CMAI5OFF**  
+Type in your browser:  
+`jvz5[dot]com/c/672499/403857`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: Coursemate AI 2.0 Pro**  
+  Type: `jvz8[dot]com/c/672499/403861`
+
+- **OTO 2: Coursemate AI 2.0 eCover Creator**  
+  Type: `jvz6[dot]com/c/672499/403865`
+
+- **OTO 3: Coursemate AI 2.0 Flipbook Creator**  
+  Type: `jvz5[dot]com/c/672499/403867`
+
+- **OTO 4: Coursemate AI 2.0 Membership Option**  
+  Type: `jvz8[dot]com/c/672499/403871`
+
+- **OTO 5: Coursemate AI 2.0 Reseller**  
+  Type: `jvz7[dot]com/c/672499/403873`
+
+---
+
+## 🎁 Check My Bonus Page  
+Full details on exclusive bonuses:  
+`williamreview[dot]com/coursemate-ai-2`
+
+---
+
+## 💥 Special Bonus Vault  
+🎁 **Mega 5,000 Bonuses – Worth Over $2,976,749**  
+Browse here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase using any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Bonuses will be delivered within **12 hours** — confirm via email to ensure fast delivery.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At checkout, scroll to the bottom of the page and confirm:  
+**Affiliate: 672499 - William Johnson**
+
 <h2 class="" data-start="1207" data-end="1253">What Makes CourseMateAI 2.0 So Different?</h2>
 <p class="" data-start="1254" data-end="1280">In one word: <em data-start="1267" data-end="1279">simplicity</em>.</p>
 <p class="" data-start="1282" data-end="1455">I logged in, followed the easy steps, and within minutes, I had a fully branded online academy up and running. No coding. No tech headaches. No waiting weeks for developers.</p>
@@ -119,3 +177,60 @@
 <p class="" data-start="4274" data-end="4430">Don’t make the mistake I almost did by waiting too long. Prices are going up, and once they shift to monthly plans, this one-time deal may be gone for good.</p>
 <p class="" data-start="4432" data-end="4576">👉 Grab <strong data-start="4440" data-end="4460">CourseMateAI 2.0</strong> today.<br data-start="4467" data-end="4470" />👉 Use code <strong data-start="4482" data-end="4491">CMAI7</strong> for an extra $7 off.<br data-start="4512" data-end="4515" />👉 Build your profitable online course business—starting now.</p>
 <p class="" data-start="4578" data-end="4658">Because your dream deserves more than struggle. It deserves a system that works.</p>
+# 🎓 Coursemate AI 2.0 – Full Funnel Access + VIP Bonuses!
+
+## 🚀 Get All Coursemate AI 2.0 Offers Below
+
+You can grab any OTO directly — affiliate tracking is built into every link.
+
+---
+
+### 🔹 Coursemate AI 2.0 FE – Coupon Code: **CMAI5OFF**  
+Type in your browser:  
+`jvz5[dot]com/c/672499/403857`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: Coursemate AI 2.0 Pro**  
+  Type: `jvz8[dot]com/c/672499/403861`
+
+- **OTO 2: Coursemate AI 2.0 eCover Creator**  
+  Type: `jvz6[dot]com/c/672499/403865`
+
+- **OTO 3: Coursemate AI 2.0 Flipbook Creator**  
+  Type: `jvz5[dot]com/c/672499/403867`
+
+- **OTO 4: Coursemate AI 2.0 Membership Option**  
+  Type: `jvz8[dot]com/c/672499/403871`
+
+- **OTO 5: Coursemate AI 2.0 Reseller**  
+  Type: `jvz7[dot]com/c/672499/403873`
+
+---
+
+## 🎁 Check My Bonus Page  
+Full details on exclusive bonuses:  
+`williamreview[dot]com/coursemate-ai-2`
+
+---
+
+## 💥 Special Bonus Vault  
+🎁 **Mega 5,000 Bonuses – Worth Over $2,976,749**  
+Browse here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Purchase using any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. Bonuses will be delivered within **12 hours** — confirm via email to ensure fast delivery.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At checkout, scroll to the bottom of the page and confirm:  
+**Affiliate: 672499 - William Johnson**
